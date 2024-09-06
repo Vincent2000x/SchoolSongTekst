@@ -6,3 +6,6 @@ Wat doen we hier?
 Hoe zijn we hier beland? 
 Kwart over 4? 
 En ik ben uit balans?
+
+Hoi Daan
+wanneer een date?
